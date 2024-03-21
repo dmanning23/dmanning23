@@ -17,7 +17,7 @@ Recognizing my continuous commitment and dedication, these trophies are a testam
 ---------
 I would love to connect, collaborate, and brainstorm ideas with fellow developers. Feel free to reach out to me through the following channels:
 
-- Email: dmanning23@gmail.com
+- LinkedIn: [dmanning23@gmail.com](https://www.linkedin.com/in/dan-manning/)
 
 ## GitHub Stats
 ---------
